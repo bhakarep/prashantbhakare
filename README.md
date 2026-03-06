@@ -4,7 +4,7 @@
 📞 +91 8655505906  
 📧 bhakareprashant17@gmail.com  
 🔗 GitHub: https://github.com/prashantbhakare  
-🔗 LinkedIn: https://linkedin.com/in/prashantbhakare  
+🔗 LinkedIn: www.linkedin.com/in/prashant-bhakare
 
 ---
 
